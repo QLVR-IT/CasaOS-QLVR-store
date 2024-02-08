@@ -1,1 +1,1 @@
-# CasaOS-QLVR-store
+# CasaOS QLVR-IT Store
